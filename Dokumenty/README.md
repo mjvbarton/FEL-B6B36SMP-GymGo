@@ -1,0 +1,1 @@
+***Zde naleznete pøehled finálních verzí všech dokumentù, které budeme vytváøet v rámci týmu***
