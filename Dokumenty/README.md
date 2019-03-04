@@ -1,1 +1,1 @@
-***Zde naleznete pøehled finálních verzí všech dokumentù, které budeme vytváøet v rámci tımu***
+***Zde naleznete pÅ™ehled finÃ¡lnÃ­ch verzÃ­ vÅ¡ech dokumentÅ¯, kter budeme vytvÃ¡Å™et v rmci tÃ½mu***
